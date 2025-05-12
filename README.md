@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Adityabhatt29
+- 👋 Hi, I’m Aditya Bhatt
 - 👀 I’m interested in learning new things everyday.
 - 🌱 I’m currently learning fundamentals of coding.
 - 📫 How to reach me contact on adibhatt280906@gmail.com
